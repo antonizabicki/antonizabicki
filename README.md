@@ -1,6 +1,6 @@
 ## moja strona internotwa 👋
 
 
-**pozdro
+**pozdro**
 
 
